@@ -1,6 +1,10 @@
 ## Hidden
 
-Core of the core.
+Work with community.
+
+## Donate
+
+[COFFEE](https://saidqb.github.io/coffee) for more inovation
 
 Jangan lupa mampir
 
