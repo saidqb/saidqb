@@ -6,6 +6,5 @@ Work with community.
 
 [COFFEE](https://saidqb.github.io/coffee) for more inovation
 
-Jangan lupa mampir
 
-[saidqb.github.io](https://saidqb.github.io)
+Selalu ingat siapa yang pernah mendampingimu dalam perjalanan menuju sukses
